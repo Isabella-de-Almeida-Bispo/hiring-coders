@@ -1,4 +1,4 @@
-# Hiring Coders :computer::desktop_computer:
+# Hiring Coders :desktop_computer:
 
 #### Minha opinião sobre o curso até o momento:
 
